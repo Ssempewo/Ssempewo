@@ -14,8 +14,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 
 - 📫 How to reach me:
--                     Whatsapp and Mobile +256755611554
--                     +256783891114 (Mobile Only)
+-                     Mobile +256755611554 and +256783891114
 -                     Email: ssempeworogers@gmail.com
 
 <!---
